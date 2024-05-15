@@ -1,1 +1,1 @@
-Full Stack Engineer with 5 years professional experience.
+Full-stack developer with 5 years' experience in Europe and Asia.
