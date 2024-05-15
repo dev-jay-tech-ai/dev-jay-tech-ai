@@ -1,1 +1,1 @@
-Full-stack developer with 5 years' experience in Europe and Asia.
+Full-stack developer with 5 years of experience across Europe and Asia.
